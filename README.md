@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @JacobTCTC
+- 👀 I’m interested in building the web
+- 🌱 I’m currently learning Python and JS
+- 💞️ I’m looking to collaborate on Jri-creator's Creations
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: This is my School account to create School Projects. I like using this over W3Spaces. 
